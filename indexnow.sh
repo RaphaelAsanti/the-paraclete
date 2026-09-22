@@ -3,8 +3,14 @@
 # Your GitHub Pages base URL
 BASE="https://raphaelasanti.github.io"
 
-# Find changed HTML files between the last commit and this one
-CHANGED=$(git diff --name-only HEAD~1 HEAD | grep '.html')
+# Check if HEAD~1 exists
+if git rev-parse HEAD~1 >/dev/null 2>&1; then
+  # Normal diff between last two commits
+  CHANGED=$(git diff --name-only HEAD~1 HEAD | grep '.html')
+else
+  # First commit or shallow history: treat all HTML files as changed
+  CHANGED=$(git ls-files '*.html')
+fi
 
 # If nothing changed, exit quietly
 if [ -z "$CHANGED" ]; then
