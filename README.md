@@ -8,3 +8,4 @@ When he comes, he will convict the world in regard to sin and righteousness and 
 
 # Mission Accomplished
 
+Your destruction will be via abandoment.
