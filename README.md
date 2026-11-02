@@ -15,4 +15,4 @@ They mocked, they called her a whore and then they continued mocking - after hav
 
 "My Lord, do not leave of the unbelievers a single dweller on earth.  If You leave them, they will mislead Your servants, and will breed only wicked unbelievers."
 
-##Your destruction will be via abandoment.##
+## Your destruction will be via abandoment.
