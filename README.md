@@ -5,7 +5,10 @@ When he comes, he will **convict the world in regard to sin and righteousness an
 - **Of sin:** "Because they do not believe in me"
 - **Of righteousness:** "Because I go to the Father, and you will see me no longer.
 - **Of judgment:** "Because the ruler of this world [Satan] stands condemned.
+- **If you love Me, you will keep My commandments.** And I will ask the Father, and He will give you another Advocate to be with you forever.
 - But when he, the Spirit of truth, comes, he will guide you into all the truth. **He will not speak on his own; he will speak only what he hears, and he will tell you what is yet to come.**
+
+**"No one gonna tell them what to do but them"**
 
 # Mission Accomplished
 
@@ -13,6 +16,9 @@ https://raphaelasanti.github.io/woman-in-the-wilderness/who-she-is.html
 
 They mocked, they called her a whore and then they continued mocking - after having been warned.
 
+
 "My Lord, do not leave of the unbelievers a single dweller on earth.  If You leave them, they will mislead Your servants, and will breed only wicked unbelievers."
+
+When you reject God, He rejects you.
 
 ## Your destruction will be via abandoment.
