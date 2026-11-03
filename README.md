@@ -10,6 +10,8 @@ When he comes, he will **convict the world in regard to sin and righteousness an
 
 **"No one gonna tell them what to do but them"**
 
+### The salt lost its saltiness.
+
 # Mission Accomplished
 
 https://raphaelasanti.github.io/woman-in-the-wilderness/who-she-is.html
