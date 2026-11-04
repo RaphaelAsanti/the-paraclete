@@ -23,4 +23,7 @@ They mocked, they called her a whore and then they continued mocking - after hav
 
 When you reject God, He rejects you.
 
-## Your destruction will be via abandoment.
+## ~~Your destruction will be via abandoment.~~
+## It's beginning to look a lot like 'the end of the universe'
+https://raphaelasanti.github.io/the-end-of-time
+
