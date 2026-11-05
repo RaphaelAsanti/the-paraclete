@@ -27,3 +27,15 @@ When you reject God, He rejects you.
 ## It's beginning to look a lot like 'the end of the universe'
 https://raphaelasanti.github.io/the-end-of-time
 
+## And So It Begins
+
+The Comforter, who is The Holy Spirit, is going FULL Holy.
+
+- None of you are worth fighting for.
+- None of this is worth fighting for.
+- The angels, refused to 'black hole' the devil as commanded so he will burn with the universe.
+
+Every soul that is Sanctified and Holy will rise and escape.  All others will burn along with the universe.
+
+https://www.youtube.com/watch?v=LcMSFZZ-erw
+
