@@ -49,7 +49,7 @@ These are not coals for warmth;\
     these you have dealt with\
     and labored with since childhood.\
 All of them go on in their error;\
-    there is not one that can save you.\
+    there is not one that can save you.
 
 **Trial by Fire**
 
