@@ -27,7 +27,7 @@ When you reject God, He rejects you.
 ## It's beginning to look a lot like 'the end of the universe'
 https://raphaelasanti.github.io/the-end-of-time
 
-## And So It Begins
+## The Beginning of The End
 
 **The Comforter, who is The Holy Spirit, is going FULL Holy.**
 
