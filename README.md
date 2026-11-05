@@ -39,17 +39,17 @@ https://raphaelasanti.github.io/the-end-of-time
 
 - But who can endure the day of His coming? And who can stand when He appears? For He will be like a refiner’s fire, like a launderer’s soap.
 
-- Surely they are like stubble;/
-    the fire will burn them up./
-They cannot even save themselves/
-    from the power of the flame./
-These are not coals for warmth;/
-    this is not a fire to sit by./
- That is all they are to you/
-    these you have dealt with/
-    and labored with since childhood./
-All of them go on in their error;/
-    there is not one that can save you./
+- Surely they are like stubble;\
+    the fire will burn them up.\
+They cannot even save themselves\
+    from the power of the flame.\
+These are not coals for warmth;\
+    this is not a fire to sit by.\
+ That is all they are to you\
+    these you have dealt with\
+    and labored with since childhood.\
+All of them go on in their error;\
+    there is not one that can save you.\
 
 **Trial by Fire**
 
