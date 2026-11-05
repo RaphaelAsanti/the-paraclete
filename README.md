@@ -55,5 +55,7 @@ All of them go on in their error;\
 
 https://www.youtube.com/watch?v=LcMSFZZ-erw
 
+(A bunch of 'tardz  have already been triggered by this song.  It has nothing to do with 'blue' and has everything to do with burning the universe and time itself.  They never do what God Commands anyway, but if anyone says 'blue' they snap to attention for a moment.)
+
 **From the 'Fire of Unknown Origin' Album**
 
