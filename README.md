@@ -29,7 +29,7 @@ https://raphaelasanti.github.io/the-end-of-time
 
 ## The Beginning of The End
 
-**The Comforter, who is The Holy Spirit, is going FULL Holy.**
+**The Comforter, who is The Holy Spirit, is going FULL 100% Undiluted Holy.**
 
 - None of you are worth fighting for.
 - None of this is worth fighting for.
@@ -38,6 +38,18 @@ https://raphaelasanti.github.io/the-end-of-time
 **Every soul that is Sanctified and Holy will rise and escape.  All others will burn along with the universe.**
 
 - But who can endure the day of His coming? And who can stand when He appears? For He will be like a refiner’s fire, like a launderer’s soap.
+
+- Surely they are like stubble;/
+    the fire will burn them up./
+They cannot even save themselves/
+    from the power of the flame./
+These are not coals for warmth;/
+    this is not a fire to sit by./
+ That is all they are to you/
+    these you have dealt with/
+    and labored with since childhood./
+All of them go on in their error;/
+    there is not one that can save you./
 
 **Trial by Fire**
 
