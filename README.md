@@ -29,13 +29,13 @@ https://raphaelasanti.github.io/the-end-of-time
 
 ## And So It Begins
 
-The Comforter, who is The Holy Spirit, is going FULL Holy.
+**The Comforter, who is The Holy Spirit, is going FULL Holy.**
 
 - None of you are worth fighting for.
 - None of this is worth fighting for.
 - The angels, refused to 'black hole' the devil as commanded so he will burn with the universe.
 
-Every soul that is Sanctified and Holy will rise and escape.  All others will burn along with the universe.
+**Every soul that is Sanctified and Holy will rise and escape.  All others will burn along with the universe.**
 
 - But who can endure the day of His coming? And who can stand when He appears? For He will be like a refiner’s fire, like a launderer’s soap.
 
