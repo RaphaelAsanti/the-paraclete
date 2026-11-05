@@ -65,3 +65,5 @@ Philip, AKA tribe of Dan, said he won't leave.  I presume it was Philip.  Referr
 
 No doubt, they'll all continue vying to be Icarus to my Phoenix until the end.  They're all referred to Allah in perpetuity.
 
+https://www.youtube.com/watch?v=KjC_qVzuzy8
+
