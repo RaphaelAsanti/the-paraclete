@@ -41,6 +41,6 @@ Every soul that is Sanctified and Holy will rise and escape.  All others will bu
 
 **Trial by Fire**
 
-https://www.youtube.com/watch?v=LcMSFZZ-erw
+https://www.youtube.com/watch?v=LcMSFZZ-erw\
 From the 'Fire of Unknown Origin' Album
 
