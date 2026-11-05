@@ -63,5 +63,5 @@ All of them go on in their error;\
 
 Philip, AKA tribe of Dan, said he won't leave.  Referred to Allah.
 
-No doubt, they'll all continue vying for the Icarus to my Phoenix until the end.  I'll keep referring them to Allah.
+No doubt, they'll all continue vying to be Icarus to my Phoenix until the end.  I'll keep referring them to Allah.
 
