@@ -33,7 +33,7 @@ https://raphaelasanti.github.io/the-end-of-time
 
 - None of you are worth fighting for.
 - None of this is worth fighting for.
-- The angels, refused to 'black hole' the devil as commanded so he will burn with the universe.
+- The angels, refused to 'black hole' the devil as commanded so he, and they, will burn with the universe.
 
 **Every soul that is Sanctified and Holy will rise and escape.  All others will burn along with the universe.**
 
