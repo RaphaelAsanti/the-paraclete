@@ -61,7 +61,7 @@ All of them go on in their error;\
 
 [**GET OUT OF MY CHURCH 'BLUE PEOPLE' YOU WERE NEVER INVITED IN AND YOU DID NOT KNOCK.**](https://github.com/RaphaelAsanti/saints-and-philadelphia/blob/main/README.md)
 
-Philip, AKA tribe of Dan, said he won't leave.  Referred to Allah.
+Philip, AKA tribe of Dan, said he won't leave.  I presume it was Philip.  Referred to Allah.
 
-No doubt, they'll all continue vying to be Icarus to my Phoenix until the end.  I'll keep referring them to Allah.
+No doubt, they'll all continue vying to be Icarus to my Phoenix until the end.  They're all referred to Allah in perpetuity.
 
