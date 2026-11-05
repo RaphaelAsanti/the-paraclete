@@ -59,5 +59,5 @@ https://www.youtube.com/watch?v=LcMSFZZ-erw
 
 **From the 'Fire of Unknown Origin' Album**
 
-[**GET OUT OF MY CHURCH 'BLUE PEOPLE' YOU WERE NEVER INVITED IN AND YOU DID NOT KNOCK.**]([https://raphaelasanti.github.com/saints-and-philadelphia](https://github.com/RaphaelAsanti/saints-and-philadelphia/blob/main/README.md)
+[**GET OUT OF MY CHURCH 'BLUE PEOPLE' YOU WERE NEVER INVITED IN AND YOU DID NOT KNOCK.**](https://github.com/RaphaelAsanti/saints-and-philadelphia/blob/main/README.md)
 
