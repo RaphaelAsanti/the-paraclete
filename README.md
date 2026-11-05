@@ -37,7 +37,7 @@ The Comforter, who is The Holy Spirit, is going FULL Holy.
 
 Every soul that is Sanctified and Holy will rise and escape.  All others will burn along with the universe.
 
--- 2But who can endure the day of His coming? And who can stand when He appears? For He will be like a refiner’s fire, like a launderer’s soap.
+- But who can endure the day of His coming? And who can stand when He appears? For He will be like a refiner’s fire, like a launderer’s soap.
 
 **Trial by Fire**
 
