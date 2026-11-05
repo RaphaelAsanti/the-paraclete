@@ -57,7 +57,7 @@ These are not coals for warmth;\
 All of them go on in their error;\
     there is not one that can save you.
 
-(A bunch of 'tardz  have already been triggered by this song.  It has nothing to do with 'blue' and has everything to do with burning the universe and time itself.  They never do what God Commands anyway, but if anyone says 'blue' they snap to attention for a moment.  I say the Holy Spirit is going FULL HOLY and they respond with tattooed flesh and sledgehammers like they're reporting for duty.  Yeah - they really are that stupid.)
+*(A bunch of 'tardz  have already been triggered by this song.  It has nothing to do with 'blue' and has everything to do with burning the universe and time itself.  They never do what God Commands anyway, but if anyone says 'blue' they snap to attention for a moment.  I say the Holy Spirit is going FULL HOLY and they respond with tattooed flesh and sledgehammers like they're reporting for duty.  Yeah - they really are that stupid.)*
 
 [**GET OUT OF MY CHURCH 'BLUE PEOPLE' YOU WERE NEVER INVITED IN AND YOU DID NOT KNOCK.**](https://github.com/RaphaelAsanti/saints-and-philadelphia/blob/main/README.md)
 
