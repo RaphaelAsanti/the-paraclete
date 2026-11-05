@@ -61,3 +61,5 @@ All of them go on in their error;\
 
 [**GET OUT OF MY CHURCH 'BLUE PEOPLE' YOU WERE NEVER INVITED IN AND YOU DID NOT KNOCK.**](https://github.com/RaphaelAsanti/saints-and-philadelphia/blob/main/README.md)
 
+Philip, AKA tribe of Dan, said he won't leave.  Referred to Allah.
+
