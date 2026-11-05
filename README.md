@@ -35,6 +35,12 @@ https://raphaelasanti.github.io/the-end-of-time
 - None of this is worth fighting for.
 - The angels refused to 'black hole' the devil as commanded so he, and they, will burn with the universe.
 
+**Trial by Fire**
+
+https://www.youtube.com/watch?v=LcMSFZZ-erw
+
+**From the 'Fire of Unknown Origin' Album**
+
 **Every soul that is Sanctified and Holy will rise and escape.  All others will burn along with the universe.**
 
 - But who can endure the day of His coming? And who can stand when He appears? For He will be like a refiner’s fire, like a launderer’s soap.
@@ -50,12 +56,6 @@ These are not coals for warmth;\
     and labored with since childhood.\
 All of them go on in their error;\
     there is not one that can save you.
-
-**Trial by Fire**
-
-https://www.youtube.com/watch?v=LcMSFZZ-erw
-
-**From the 'Fire of Unknown Origin' Album**
 
 (A bunch of 'tardz  have already been triggered by this song.  It has nothing to do with 'blue' and has everything to do with burning the universe and time itself.  They never do what God Commands anyway, but if anyone says 'blue' they snap to attention for a moment.  I say the Holy Spirit is going FULL HOLY and they respond with tattooed flesh and sledgehammers like they're reporting for duty.  Yeah - they really are that stupid.)
 
