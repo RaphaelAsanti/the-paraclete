@@ -31,17 +31,17 @@ https://raphaelasanti.github.io/the-end-of-time
 
 **The Comforter, who is The Holy Spirit, is going FULL 100% Undiluted Holy.**
 
+# Trial by Fire
+
 - None of you are worth fighting for.
 - None of this is worth fighting for.
 - The angels refused to 'black hole' the devil as commanded so he, and they, will burn with the universe.
-
-**Trial by Fire**
 
 https://www.youtube.com/watch?v=LcMSFZZ-erw
 
 **From the 'Fire of Unknown Origin' Album**
 
-**Every soul that is Sanctified and Holy will rise and escape.  All others will burn along with the universe.**
+# Every soul that is Sanctified and Holy will rise and escape.  All others will burn along with the universe.
 
 - But who can endure the day of His coming? And who can stand when He appears? For He will be like a refiner’s fire, like a launderer’s soap.
 
