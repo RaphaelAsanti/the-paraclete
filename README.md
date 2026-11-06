@@ -67,3 +67,5 @@ No doubt, they'll all continue vying to be Icarus to my Phoenix until the end.  
 
 https://www.youtube.com/watch?v=KjC_qVzuzy8
 
+What's better than crypto?  A name that only God Almighty knows, no one else.
+
