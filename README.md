@@ -23,7 +23,7 @@ They mocked, they called her a whore and then they continued mocking - after hav
 
 When you reject God, He rejects you.
 
-## ~~Your destruction will be via abandoment~~
+## Your destruction will be via abandoment
 
 ## The Beginning of The End
 
@@ -61,6 +61,8 @@ All of them go on in their error;\
 
 Philip, AKA tribe of Dan, said he won't leave.  I presume it was Philip.  Referred to Allah.
 
+# God's Decision
+
 - M 6.4 - 30 km WSW of Lata, Solomon Islands
 - M 4.8 - 26 km SW of Lata, Solomon Islands\
 Thank You, Thank You, Thank You.
@@ -71,3 +73,4 @@ I'm of the religion of Enoch.  He walked with God, then he was no more because G
 
 https://www.youtube.com/watch?v=f8OHybVhQwc
 
+**I presume 'heart failure' will be my physical cause of death.**
