@@ -74,3 +74,7 @@ I'm of the religion of Enoch.  He walked with God, then he was no more because G
 https://www.youtube.com/watch?v=f8OHybVhQwc
 
 **I presume 'heart failure' will be my physical cause of death.**
+
+I won't be relying on any of the so-called angels to bring my soul out.
+
+**Allah is enough for me; there is no god except He; in Him I have put my trust; He is the Lord of the Sublime Throne.**
