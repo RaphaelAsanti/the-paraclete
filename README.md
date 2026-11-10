@@ -65,5 +65,7 @@ Philip, AKA tribe of Dan, said he won't leave.  I presume it was Philip.  Referr
 - M 4.8 - 26 km SW of Lata, Solomon Islands\
 Thank You, Thank You, Thank You.
 
-I'm of the religion of Enoch.  He walked with God, then he was no more because God took him.  The pages in this repository will serve as the modern day version of "The Sins of the Watchers"
+I'm of the religion of Enoch.  He walked with God, then he was no more because God took him.  
+
+**The pages in this repository serve as the modern day version of "The Sins of the Watchers".**
 
