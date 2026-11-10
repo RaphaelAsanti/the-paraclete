@@ -77,4 +77,4 @@ https://www.youtube.com/watch?v=f8OHybVhQwc
 
 I won't be relying on any of the so-called angels to bring my soul out.
 
-**Allah is enough for me; there is no god except He; in Him I have put my trust; He is the Lord of the Sublime Throne.**
+**Allah is enough for me; there is no god except He; in Allah I have put my trust; Allah is the Lord of the Sublime Throne.**
