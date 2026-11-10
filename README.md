@@ -23,17 +23,47 @@ They mocked, they called her a whore and then they continued mocking - after hav
 
 When you reject God, He rejects you.
 
-## Your destruction will be via abandoment
+## ~~Your destruction will be via abandoment~~
 
-They're all Babylonians.
+## The Beginning of The End
 
-https://raphaelasanti.github.io/global-warming-destruction-of-babylon
+**The Comforter, who is The Holy Spirit, is going FULL 100% Undiluted Holy.**
+
+## Trial by Fire
+
+- None of you are worth fighting for.
+- None of this is worth fighting for.
+- The angels refused to 'black hole' the devil as commanded so he, and they, will burn with the universe.
+
+https://www.youtube.com/watch?v=LcMSFZZ-erw
+
+**From the 'Fire of Unknown Origin' Album**
+
+## Every soul that is Sanctified and Holy will rise and escape.  All others will burn along with the universe.
+
+- But who can endure the day of His coming? And who can stand when He appears? For He will be like a refiner’s fire, like a launderer’s soap.
+
+- Surely they are like stubble;\
+    the fire will burn them up.\
+They cannot even save themselves\
+    from the power of the flame.\
+These are not coals for warmth;\
+    this is not a fire to sit by.\
+ That is all they are to you\
+    these you have dealt with\
+    and labored with since childhood.\
+All of them go on in their error;\
+    there is not one that can save you.
+
+*(A bunch of 'tardz  have already been triggered by this song.  It has nothing to do with 'blue' and has everything to do with burning the universe and time itself.  They never do what God Commands anyway, but if anyone says 'blue' they snap to attention for a moment.  I say the Holy Spirit is going FULL HOLY and they respond with tattooed flesh and sledgehammers like they're reporting for duty.  Yeah - they really are that stupid.)*
+
+[**GET OUT OF MY CHURCH 'BLUE PEOPLE' YOU WERE NEVER INVITED IN AND YOU DID NOT KNOCK.**](https://github.com/RaphaelAsanti/saints-and-philadelphia/blob/main/README.md)
+
+Philip, AKA tribe of Dan, said he won't leave.  I presume it was Philip.  Referred to Allah.
 
 - M 6.4 - 30 km WSW of Lata, Solomon Islands
 - M 4.8 - 26 km SW of Lata, Solomon Islands\
 Thank You, Thank You, Thank You.
 
-My own cause of death will be heart failure.
-
-https://www.youtube.com/watch?v=f8OHybVhQwc
+I'm of the religion of Enoch.  He walked with God, then he was no more because God took him.  The pages in this repository will serve as the modern day version of "The Sins of the Watchers"
 
