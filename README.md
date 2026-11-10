@@ -29,5 +29,9 @@ They're all Babylonians.
 
 https://raphaelasanti.github.io/global-warming-destruction-of-babylon
 
+- M 6.4 - 30 km WSW of Lata, Solomon Islands
+- M 4.8 - 26 km SW of Lata, Solomon Islands\
+Thank You, Thank You, Thank You.
 
+https://www.youtube.com/watch?v=f8OHybVhQwc
 
