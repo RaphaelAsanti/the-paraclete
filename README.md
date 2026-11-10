@@ -33,5 +33,7 @@ https://raphaelasanti.github.io/global-warming-destruction-of-babylon
 - M 4.8 - 26 km SW of Lata, Solomon Islands\
 Thank You, Thank You, Thank You.
 
+My own cause of death will be heart failure.
+
 https://www.youtube.com/watch?v=f8OHybVhQwc
 
