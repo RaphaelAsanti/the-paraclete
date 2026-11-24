@@ -12,6 +12,14 @@ The Paraclete was here.  [View the web edition →](https://raphaelasanti.github
 
 ### The salt lost its saltiness.
 
+If you afflict The Orphan, you will surely die.
+
+And they asked; "Did God really say if we afflict the Orphan we would die?"
+
+Yes, He Did.
+
+And their eyes were opened and they saw it was fun to afflict the orphan.
+
 # Mission Accomplished
 
 The World is Convicted of Sin.
