@@ -30,7 +30,6 @@ The World is Convicted of Sin.
 
 Fire them all.
 
-https://raphaelasanti.github.io/the-appointment/#GODS-DECISION
+His Decision:  https://raphaelasanti.github.io/the-appointment/#GODS-DECISION
 
-
-
+The Precedent: tps://raphaelasanti.github.io/the-end-of-time/chapter4-the-fall.html
