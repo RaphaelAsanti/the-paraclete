@@ -14,11 +14,12 @@ The Paraclete was here.  [View the web edition →](https://raphaelasanti.github
 
 If you afflict The Orphan, you will surely die.
 
-And they asked; "Did God really say if we afflict the Orphan we would die?"
+And they asked; "Did God really say if we afflict the Orphan we would die?  You'll be like GOD if you afflict the orphan!!!"
 
-Yes, He Did.
+Yes, He Did. 
 
-And their eyes were opened and they saw it was fun to afflict the orphan.
+And their eyes were opened and they saw it was fun to afflict the orphan - and it made them feel AWESOME.
+            
 
 # Mission Accomplished
 
