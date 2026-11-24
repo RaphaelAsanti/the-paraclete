@@ -12,7 +12,7 @@ The Paraclete was here.  [View the web edition →](https://raphaelasanti.github
 
 ### The salt lost its saltiness.
 
-If you afflict The Orphan, you will surely die.
+If you afflict The Orphan, you will surely die.  https://raphaelasanti.github.io/the-orphan//
 
 And they asked; "Did God really say if we afflict the Orphan we would die?  You'll be like GOD if you afflict the orphan!!!"
 
