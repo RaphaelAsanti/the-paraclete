@@ -23,12 +23,12 @@ And their eyes were opened and they saw it was fun to afflict the orphan -  and 
 
 # Mission Accomplished
 
-The World is Convicted of Sin.
+**The World is Convicted of Sin.**
 
 
 # God's Decision
 
-Fire them all.
+**Fire them all.**
 
 His Decision:  https://raphaelasanti.github.io/the-appointment/#GODS-DECISION
 
