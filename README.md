@@ -18,7 +18,7 @@ And they asked; "Did God really say if we afflict the Orphan we would die?  You'
 
 Yes, He Did. 
 
-And their eyes were opened and they saw it was fun to afflict the orphan - and it made them feel AWESOME.
+And their eyes were opened and they saw it was fun to afflict the orphan -  and it was "good for food" (along with being pleasing to the eyes and desirable for gaining wisdom and it made them feel AWESOME - like they were God's and Goddesses or something.
             
 
 # Mission Accomplished
